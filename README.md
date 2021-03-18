@@ -3,7 +3,7 @@ just another respiratory
 
 Hi!
 
-Ania 
-Student 
-chemistry
-le language français
+Ania. 
+Student.  
+chemistry. 
+le language français. 
